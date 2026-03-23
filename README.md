@@ -1,2 +1,2 @@
 # THI
-Liên hệ Zalo 0986221504 để mua
+https://drive.google.com/file/d/1DnxNKfWJVFia6YyBhm8XNTstTm91HGZJ/view?usp=sharing
